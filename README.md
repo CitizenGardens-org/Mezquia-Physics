@@ -1,4 +1,4 @@
-# 🌌 Marcelo Mezquia — Architect of the Intentuitive Age
+# 🌌 Mezquia Physics — Architecture of the Intentuitive Age - Resonant Nexus Protocol 
 
 **"Reality is learning, and We are watching."** — *My guiding principle, encoded into the very fabric of existence.*
 
